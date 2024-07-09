@@ -36,8 +36,8 @@ Let's improve our coding skills together, one problem at a time. 🚀
 
 If you have any questions or suggestions, feel free to reach out:
 
-- Email: [your.email@example.com](mailto:arunachala01072004@gmail.com)
-- GitHub: [yourusername](https://github.com/Arunachala2004)
+- Email: [Arunachala](mailto:arunachala01072004@gmail.com)
+- GitHub: [Arunachala2004](https://github.com/Arunachala2004)
 
 ---
 
